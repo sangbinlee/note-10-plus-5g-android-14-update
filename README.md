@@ -29,8 +29,16 @@ Update Galaxy Note 10 Plus 5G To Latest ONE UI 6 Android 14 All Note 10 Series
 ![image](https://github.com/user-attachments/assets/40b42123-3bd6-4169-883c-32b17386a13f)
 
 # 9
+![image](https://github.com/user-attachments/assets/c191cd55-27a0-418e-82c2-bb8b4d730935)
 
 # 10
 
+![image](https://github.com/user-attachments/assets/f62700c8-8c46-42d7-bdce-23944432920b)
 
+
+# 11   Why can't I copy a large 8GB file to my PC\Galaxy Note 10+ 5G\Internal Storage path?
+![image](https://github.com/user-attachments/assets/56d11fce-c72f-487f-ba02-50f0c998b4d1)
+
+
+https://github.com/user-attachments/assets/e65b8903-889f-45c3-9650-94cb0b89c18b
 
