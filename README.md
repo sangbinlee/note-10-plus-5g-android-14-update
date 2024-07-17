@@ -17,8 +17,10 @@ Update Galaxy Note 10 Plus 5G To Latest ONE UI 6 Android 14 All Note 10 Series
 ![image](https://github.com/user-attachments/assets/dc97c552-a9a7-43c7-93f4-09a10cf1ffca)
 
 # 5
+![image](https://github.com/user-attachments/assets/bacb5927-ab1b-4ff4-a595-1bc559122b82)
 
 # 6
+![image](https://github.com/user-attachments/assets/02b96f92-80be-49e9-a73c-dc169666fe3e)
 
 # 7
 
