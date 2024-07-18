@@ -62,3 +62,34 @@ https://github.com/user-attachments/assets/e65b8903-889f-45c3-9650-94cb0b89c18b
 ____________________________
 
 
+
+#  How to flash Samsung Galaxy Note10+ 5G SM-N976N firmware
+![image](https://github.com/user-attachments/assets/d267a2cf-e080-4460-a82e-7023537f42de)
+
+![image](https://github.com/user-attachments/assets/c4ea602d-86f3-407e-8444-2c26d258e957)
+
+![image](https://github.com/user-attachments/assets/3ab5584a-63ee-419b-b30f-4d5503071303)
+
+![image](https://github.com/user-attachments/assets/df6ed042-d3de-4b3a-aadf-6113896fb46a)
+
+
+![image](https://github.com/user-attachments/assets/55e74abb-25cb-4ae3-bfa9-ac4d5883a136)
+![image](https://github.com/user-attachments/assets/02806732-b137-4032-842a-25ba2984c774)
+
+![image](https://github.com/user-attachments/assets/7fa85ae6-23f3-4a7c-952d-9b39a4e03fff)
+
+
+![image](https://github.com/user-attachments/assets/ddcc1bfb-0dae-43a5-bba5-ed25c5c7cf9c)
+
+![image](https://github.com/user-attachments/assets/6374e48a-69b8-4cf9-8308-2d72fc821ecb)
+
+![image](https://github.com/user-attachments/assets/5465885b-ca5f-4599-aeae-dfd0679ab49c)
+![image](https://github.com/user-attachments/assets/ac53ddf6-adda-402b-9fc9-c863b9fc4110)
+
+
+
+![image](https://github.com/user-attachments/assets/5cad1670-a4d6-4f0e-ad5c-a1bf14996ba1)
+
+
+
+
